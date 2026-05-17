@@ -1,0 +1,1 @@
+# moscow-zhk-map-hand-picked
